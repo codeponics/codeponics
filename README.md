@@ -1,1 +1,1 @@
-Long-time game developer and programmer. Computer science major.
+Long-time game developer and programmer. Computer science and mathematics major.
